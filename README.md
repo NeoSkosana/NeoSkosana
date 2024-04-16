@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **skosananeogift@gmail.com**
 
-- ⚡ Fun fact **Love knowing ETs**
+- ⚡ Fun fact **Love knowing about ETs**
 
 ### Blogs posts
 <!-- BLOG-POST-LIST:START -->
